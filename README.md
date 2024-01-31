@@ -10,7 +10,7 @@
 
 - 😄 Pronouns: She/Her
 
-⚡ Fun fact about me: I had the incredible opportunity to work for BT, and now some of my proudest achievements are showcased in their display room! 🌐🔧
+- ⚡ Fun fact about me: I had the incredible opportunity to work for BT, and now some of my proudest achievements are showcased in their display room! 🌐🔧
 
 - During my time at BT, I dove deep into the world of telecommunications, contributing my skills and passion to innovative projects. Now, the fruits of that labor are on display for all to see in the showcase room—a testament to the exciting journey I've had in the tech industry.
 
