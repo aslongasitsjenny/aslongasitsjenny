@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @aslongasitsjenny, a 20-year-old female student diving into the exciting world of computer science! 🚀
+- 👋 Hi, I’m @aslongasitsjenny, a 21-year-old female student diving into the exciting world of computer science! 🚀
 
 - 👀 I’m passionate about a lot of things, but my heart beats for gaming 🎮, the thrill of motorbikes 🏍️, and the finesse of tennis 🎾. When I'm not immersed in code, you'll find me exploring new game releases, hitting the tennis court, or enjoying the wind in my hair on my beloved motorbike.
 
